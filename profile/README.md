@@ -2,7 +2,7 @@
 
 Looking for a **blazing-fast racing game** that’s both **addictive** and **easy to play** anywhere? Look no further than **Speed Stars Unblocked** – the **ultimate hyper casual speed runner** that’s taking classrooms and browsers by storm!
 
-## <a href="https://izigames.net/">👉 Play Speed Stars Unblocked 👈</a>
+## <a href="https://izigames.net/speed-stars/">👉 Play Speed Stars Unblocked 👈</a>
 
 ---
 
